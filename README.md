@@ -4,7 +4,7 @@ Julien stopped in amazement in the middle of the courtyard. "Pull yourself toget
 "Let them do their worst," said Julien biting his lip, and he became as distrustful as ever.
 
 The salons on the first storey which our gentlemen went through before reaching the marquis' study, would have seemed to you, my reader, as gloomy as they were magnificent. If they had been given to you just as they were, you would have refused to live in them. This was the domain of yawning and melancholy reasoning. They redoubled Julien's rapture. "How can any one be unhappy?" he thought, "who lives in so splendid an abode."
-
+![i](https://cdn.birdwatchingdaily.com/2019/11/Vulturine-Guineafowl-1.jpg)
 Finally our gentlemen arrived at the ugliest rooms in this superb suite. There was scarcely any light. They found there a little keen man with a lively eye and a blonde wig. The abbé turned round to Julien and presented him. It was the marquis. Julien had much difficulty in recognising him, he found his manner was so polite. It was no longer the grand seigneur with that haughty manner of the abbey of Bray-le-Haut. Julien thought that his wig had much too many hairs. As the result of this opinion he was not at all intimidated. The descendant of the friend of Henry III. seemed to him at first of a rather insignificant appearance. He was extremely thin and very restless, but he soon noticed that the marquis had a politeness which was even more pleasant to his listener than that of the Bishop of Besançon himself. The audience only lasted three minutes. As they went out the abbé said to Julien,
 
 "You looked at the marquis just as you would have looked at a picture. I am not a great expert in what these people here call politeness. You will soon know more about it than I do, but really the boldness of your looks seemed scarcely polite."
@@ -29,11 +29,11 @@ When he was in the Cemetery of Père La Chaise a very obliging gentleman, and wh
 
 The abbé was thunderstruck.
 
-"No," he answered at last. "Julien is not a priest."
+### "No," he answered at last. "Julien is not a priest."
 
 The marquis went up the steps of a little secret staircase two at a time, and installed our hero in a pretty attic which looked out on the big garden of the hotel. He asked him how many shirts he had got at the linen drapers.
 
-"Two," answered Julien, intimidated at seeing so great a lord condescend to such details.
+### "Two," answered Julien, intimidated at seeing so great a lord condescend to such details.
 
 "Very good," replied the marquis quite seriously, and with a certain curt imperiousness which gave Julien food for thought. "Very good, get twenty-two more shirts. Here are your first quarter's wages."
 
@@ -43,8 +43,8 @@ As he went down from the attic the marquis called an old man. "Arsène," he said
 
 An hour afterwards the marquis came in and was surprised to notice that Julien spelt cela with two "ll" cella. "Is all that the abbé told me of his knowledge simply a fairy tale?" The marquis was greatly discouraged and gently said to him,
 
-"You are not sure of your spelling?"
-
+### "You are not sure of your spelling?"
+![i](https://thumbor.forbes.com/thumbor/960x0/https%3A%2F%2Fblogs-images.forbes.com%2Fgrrlscientist%2Ffiles%2F2016%2F05%2Fred_cardinal-1200x746.jpg)
 "That is true," said Julien without thinking in the least of the injustice that he was doing to himself. He was overcome by the kindness of the marquis which recalled to him through sheer force of contrast the superciliousness of M. de Rênal.
 
 "This trial of the little Franc-comtois abbé is waste of time," thought the marquis, "but I had such great need of a reliable man."
